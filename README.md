@@ -5,4 +5,4 @@
 📫 How to Reach Me:
 Email: areebafatima10a@gmail.com
 ⚡ Fun Fact:
-I'm a new coder who believes that small steps lead to big success!
+I'm a new coder who believes that small steps lead to big success.
